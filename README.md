@@ -7,7 +7,7 @@
 - 👀 I'm a **Web Developer | Graphics designer | UIUX | Video Editor**
 - 🌱 I’m currently learning **computer programming at 🎓 [Brigham Young University](https://www.byu.edu)**
 - 🤝 I’m looking to collaborate for **open source Projects** remotely, intenship etc
-- 💬 ,essage me about **IT JOBS**
+- 💬 message me about **IT JOBS**
 - 📫 How to reach me **dapsteveamos@gmail.com**
 - ⚡ Fun fact **I have a registered company**
 
